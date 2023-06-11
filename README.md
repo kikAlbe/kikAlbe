@@ -1,0 +1,4 @@
+- ciao
+- non so un cavolo di lingue
+- gemer con le hacc di mc
+- ho 904523874908327 di potenza su rise of kingdom
